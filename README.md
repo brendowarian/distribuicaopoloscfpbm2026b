@@ -1,2 +1,0 @@
-# distribuicaopoloscfpbm2026b
-FORMULÁRIO DE ESCOLHA DE POLOS CFP BM 2026/B
